@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @tribhuvanchandra
-- 👀 I’m interested in Building privacy orirented projects
+- 👀 I’m interested in Building privacy oriented projects
 - 🌱 I’m currently Student
 - 📫 How to reach me v.tribhuvanchandra@gmail.com
 
